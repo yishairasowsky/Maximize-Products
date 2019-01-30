@@ -1,3 +1,3 @@
 ## Welcome to Maximize Products
 To check out our products and make your purchase...
-Visit us on [Amazon](https://github.com/yishairasowsky/fogel/edit/master/README.md)
+Visit us on [Amazon](https://www.amazon.com/dp/B07MM1QTQ6)
